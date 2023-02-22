@@ -1,1 +1,0 @@
-# kosmetologia1
